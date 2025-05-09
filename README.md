@@ -1,2 +1,2 @@
-# destination_maros
-wisata maros
+# Destination_maros
+"Selamat datang di Maros, surga tersembunyi yang menawarkan keindahan alam yang memukau! Dari bukit teletubis yang memesona hingga air terjun yang menyejukkan, setiap sudutnya siap memanjakan mata dan jiwa. Ayo eksplorasi keindahan Maros!" "Rasakan pesona alam Maros yang tak tertandingi! Dari keindahan Rammang-Rammang yang menakjubkan hingga Taman Nasional Bantimurung yang kaya akan keanekaragaman hayati, setiap langkah di sini adalah petualangan yang tak terlupakan. Mari jelajahi keajaiban alam dan budaya yang ada di Maros!"
